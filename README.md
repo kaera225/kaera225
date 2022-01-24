@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @kaera225
-- 👀 I'm a young software developer, I'm an ivorian and I live in Abidjan
+- 👀 I'm a young software developer, I'm ivorian and I live in Abidjan
 - 💞️ I'm open to every offers
 - 📫  Here is my email : kaeraadams2014@gmail.com
